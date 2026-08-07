@@ -27,3 +27,6 @@ Apertura diagragma
 Oburación 1/8 o 1/4. 
 
 Buscar una camara  reflex. 
+Investigar y entender planos/encuadres. En propuesta de solemne 01, gran parte va a ser el uso de encuadres. Estudiar presentación y anotar en bitacora.  
+
+"Receta". Ver canal nowness en youtube
