@@ -30,3 +30,6 @@ Buscar una camara  reflex.
 Investigar y entender planos/encuadres. En propuesta de solemne 01, gran parte va a ser el uso de encuadres. Estudiar presentación y anotar en bitacora.  
 
 "Receta". Ver canal nowness en youtube
+Ideas
+- Cómo huir de un fantasma? --> Film nostalgico transformador. Usar camara antigua, donde se ven iluciones, pero no son reales porque al mirar fuera de la camara esto no existe.
+- Como reconocer tus raises. --> Film para grabar a mi familia. Quizas dejar alguna pregunta de reflexión. Grabar sutilidades como narices iguales, planos de solo ojos, pelos en los brazos, etc.
